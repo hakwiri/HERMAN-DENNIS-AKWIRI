@@ -1,1 +1,1 @@
-# HERMAN-DENNIS-AKWIRI
+# HERMAN-DENNIS-AKWIRI I'm a student of life and would like to learn more on data science a skill and venture as a career. I also  create websites and learn Cyber Security as well as Network Administration.
